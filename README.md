@@ -1,6 +1,6 @@
 # robo-fortune
 __sign__ [ata](https://hyunahunnie.atabook.org/)
-![Image](Untitled549_20260920094741.png)
+![My Image](Untitled549_20260920094741.png)
      
   ̥̈ ͜𓏼˚̣̣̣𐂯
      
